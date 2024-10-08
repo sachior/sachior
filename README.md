@@ -2,7 +2,7 @@
 - 👀 I’m interested in math science sport
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on my self
-- 📫 How to reach me @sachio_04
+- 📫 How to reach me on instagram @sachio_04
 - 😄 Pronouns: cio or jendra
 - ⚡ Fun fact: i am a most handsome person in the milkyway galaxy
 
